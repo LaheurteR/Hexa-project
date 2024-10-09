@@ -1,2 +1,2 @@
 # Hexa-project
-le repo qui repote
+[RA-IL] LAHEURTE Raphaël
